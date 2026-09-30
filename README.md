@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LUCM930919HSLGHN06
+LUCM930919HSLGHN06
